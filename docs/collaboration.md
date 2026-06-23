@@ -1,1 +1,1 @@
-Initial collaboration content.
+Collaboration requires clear communication and well-defined responsibilities.
